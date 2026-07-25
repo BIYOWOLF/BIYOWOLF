@@ -1,24 +1,25 @@
 迷い人へ、ようこそ。🌙
 
-I'm Maryam. btw Im 18 
+I'm BIYOWOLF.
+
+aka Maryam.
+18 years old.
 
 Building dark fantasy worlds,
 one commit at a time.
 
 •
 
-Currently surviving on WEED
-      Late-night ideas
-            AND
-Too many unfinished projects
-I Do
+Currently
+
 → Java
 → Python
 → Game Development
 
 •
 
-Listening
+Listening To
+
 → Deftones
 → Ghostemane
 → $uicideboy$
@@ -27,8 +28,9 @@ Listening
 •
 
 Status
+
 Smoke.
-Play-some-game.
-Learning.
-Building.
-dont quit.
+Play games.
+Learn.
+Build.
+Never quit.
