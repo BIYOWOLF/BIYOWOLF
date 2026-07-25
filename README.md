@@ -22,7 +22,7 @@ Listening To
 
 → Deftones
 → Ghostemane
-→ $uicideboy$
+→ SuicideboyS
 → Marilyn Manson
 
 •
