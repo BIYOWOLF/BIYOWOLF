@@ -1,6 +1,6 @@
 迷い人へ、ようこそ。🌙
 
-I'm I'm Maryam. btw Im 18 
+I'm Maryam. btw Im 18 
 
 Building dark fantasy worlds,
 one commit at a time.
